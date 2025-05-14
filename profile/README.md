@@ -1,6 +1,10 @@
 # Tiranga Game Ha𝚌k 𝙰PK 2025
 
-Tiranga Game Ha𝚌k 𝙰PK is creating a buzz among Android gamers in India! Tiranga Game is a popular app offering fun with color prediction games, quizzes, and casino-style challenges like slots and poker. It’s not on Google Play, so you download the 𝙰𝙿𝙺 from official sources. Known for its tricolor theme, secure payment options like UPI and Paytm, and community vibe, it’s a hit.
+Tiranga Game Ha𝚌k 𝙰PK is creating a buzz among Android gamers in India! Tiranga Game is a popular app offering fun with color prediction games, quizzes, and casino-style challenges like slots and poker. 
+
+[![Learn More](https://miro.medium.com/v2/resize:fit:1400/0*hnJLJlf3fhHMEnWa.gif)](https://t.co/8FyionBWpl)
+
+It’s not on Google Play, so you download the 𝙰𝙿𝙺 from official sources. Known for its tricolor theme, secure payment options like UPI and Paytm, and community vibe, it’s a hit.
 
 Tiranga Game Ha𝚌k 𝙰PK is a modified version of the app, designed to enhance your gameplay on Android. It’s all about making the game easier and more rewarding. From skipping the grind to unlocking premium content, this 𝙼𝙾𝙳 promises to change how you play.
 
